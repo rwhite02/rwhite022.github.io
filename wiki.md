@@ -1,4 +1,4 @@
-# History of Texas Hold 'em in the United States.
+# History of Texas Hold 'em in the United States
 ![Texas Hold 'em Hand](https://upswingpoker.com/wp-content/uploads/2019/08/poker-hands-royal-flush-in-texas-holdem-rankings.jpg)
 
 Texas Hold 'em has become the most popular version of poker in the United States, and I'd like to explore
